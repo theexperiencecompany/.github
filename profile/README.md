@@ -1,2 +1,1 @@
-[![twitter_header](https://github.com/user-attachments/assets/aac78e03-1e87-4b7f-9f85-329ed07bd90b)
-](https://heygaia.io)
+[![image](https://github.com/user-attachments/assets/d5de0d58-cc84-445f-abdb-537d5b1a0ea1)](https://heygaia.io)
